@@ -1,4 +1,4 @@
-👋 Hello, I'm [Your Name]!
+👋 Hello, I'm Raksha kamath!
 
 🚀 I'm a passionate and dedicated computer science engineering student at NMAM Institute of Technology, Nitte, with a strong drive to make a meaningful impact in the world of technology. My journey in the field of computer science has been a remarkable learning experience, and I aspire to contribute my skills and knowledge to innovative projects and collaborate with like-minded professionals.
 
